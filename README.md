@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Angular**
 
-- 📫 How to reach me **fadyfaresabdulraouf@outlook.com**
+- 📫 How to reach me **fadyfares527@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1f4Mhah_ddE-D-n9eMhMKBBCYS74R32sf/view?usp=sharing](https://drive.google.com/file/d/1f4Mhah_ddE-D-n9eMhMKBBCYS74R32sf/view?usp=sharing)
 
